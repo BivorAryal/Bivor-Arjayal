@@ -1,3 +1,6 @@
+
+![ML eng pic](https://github.com/user-attachments/assets/f3fc8daa-4e58-48a8-80c4-9b76fa75fad8)
+
 👨‍💻 Machine Learning Engineer | R&D Engineer in Medical Devices | Project Lead
 
 🚀 About Me
